@@ -1,0 +1,1 @@
+this project is base on the failior of electricity in the world at large. we here by introduce a power surce from the sun that helps you manage your energy by your self. and since we start light up the world project its been giving to people at the cheeper rate like ask me how on my email at montanagatemedical7@gmail.com
